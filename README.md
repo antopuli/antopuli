@@ -14,4 +14,4 @@ Currently pursuing a four-year program in Computer Science and Telecommunication
 
 Open to learning, collaborating, and contributing to impactful projects. Excited about the convergence of technology and data to drive innovation. Let's connect and explore opportunities in the fascinating realm of Data Science and Technology! 🚀
 
-Contact me on [Linkedin](www.linkedin.com/in/antonio-puliafito-97896b213)
+Contact me on [Linkedin](https://www.linkedin.com/in/antonio-puliafito-97896b213/)
